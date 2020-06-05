@@ -2,5 +2,5 @@
 Getting there chief!
 
 This is Elemion the Elf. Exiled to Earth.
-I don't my fellow elves here but I have my blade.
+I don't have my fellow elves here but I have my blade.
 Earth shall never fall!
